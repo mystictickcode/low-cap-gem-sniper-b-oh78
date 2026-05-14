@@ -1,4 +1,4 @@
-# 
+# low cap gem sniper bot rare Bot - low-cap-gem-detection and meme-coin-scanning is the best low cap gem sniper bot, featuring low-cap-gem-detection and meme-coin-scanning. Fast,
 
 
 
